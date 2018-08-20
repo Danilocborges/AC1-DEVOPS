@@ -1,2 +1,0 @@
-Desejo trabalhar na area da computação de atua na gestão de tecnologia de informação e seguir o curso o qual escolhi para a minha formação, sendo assim seguindo um ramo profissional, que esta à crescer no Brasil e no mundo um lugar onde a tecnologia está crescendo em proporões gigantescas.
-Gostaria de trabalhar em uma empresa na qual me familirizo na minha area de atuaçao, seja ela de grande a medio porte, um lugar leagal para se trabalhar e se esforçar ao maximo possivel para trazer sempre o melhor. 
